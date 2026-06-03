@@ -1,1 +1,0 @@
-# DeepThought-Federer-Sourcing-Assignment
